@@ -1,0 +1,4 @@
+- 👋 Hi, This is an official GitHub account for an roblox bedwars "EKO clan"
+- 📫 EKO discord server: http://links.snowysnipes.rf.gd/ekoclan
+- 😄 Pronouns: EKO, Elite Killers OP
+- ⚡ Fun fact: We are always gonna be the elites!
